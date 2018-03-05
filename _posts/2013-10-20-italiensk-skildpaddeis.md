@@ -26,9 +26,8 @@ Skildpadder er godt, italiensk is er godt, så hvorfor ikke kombinere de to ting
   * 100g sukker
   * 4 kæmpe skildpadder(eller alt efter smag)
 
-**Opskrift:
-  
-** Hæld mælken i en gryde og varm den op, alt imens du pisker sukker med æggeblommer til en luftig og cremet masse. Når mælken er lige før kogepunktet(der kommer rigeligt med bobler langs kanten, tilsættes 1/3 af mælken langsomt til æggemassen. Herefter sættes gryden med mælk over svag varme, og æggesnapsen(med mælk) hældes langsomt i gryden, under konstant omrøring, fløden tilsættes herefter. Lad så blandingen stå ved svag varme til det begynder at tykne så meget at der kan trækkes spor med en træske. Hæld til sidst blandingen i en skål og sæt den på køl til den når køleskabstemperatur.
+**Opskrift:**
+Hæld mælken i en gryde og varm den op, alt imens du pisker sukker med æggeblommer til en luftig og cremet masse. Når mælken er lige før kogepunktet(der kommer rigeligt med bobler langs kanten, tilsættes 1/3 af mælken langsomt til æggemassen. Herefter sættes gryden med mælk over svag varme, og æggesnapsen(med mælk) hældes langsomt i gryden, under konstant omrøring, fløden tilsættes herefter. Lad så blandingen stå ved svag varme til det begynder at tykne så meget at der kan trækkes spor med en træske. Hæld til sidst blandingen i en skål og sæt den på køl til den når køleskabstemperatur.
   
 Når blandingen er kold køres den på ismaskine. Tilsæt de hakkede skildpadder når isen begynder begynder at tykne.
 
