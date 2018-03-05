@@ -22,35 +22,35 @@ Prisforskellen fra en klassisk 'sparepizza' med skinkestrimler og revet ost (til
 
 Vigtigt for en lækker pizza er en sprød bund. Feinschmeckeren vil nok vælge at lade en dej koldhæve natten over, men selv en traditionel 'hurtig-dej' er markant bedre end supermarkedernes færdiglavede (pap-)pizzabunde. Brug gerne et par ekstra kroner på italiensk Tipo 00-hvedemel (eller tilsvarende), da dette giver en særligt lækker, let og luftig dej.
 
-<a href="http://chew.dk/wp-content/uploads/DSC_0074.jpg"><img src="http://chew.dk/wp-content/uploads/DSC_0074-1024x680.jpg" /></a>
+<a href="/assets/img/posts/DSC_0074.jpg"><img src="/assets/img/posts/DSC_0074-1024x680.jpg" /></a>
 
 Tomatsaucen kræver heller ikke eksotiske ingredienser: Man når langt med hakkede tomater, krydderier som oregano og basilikum, samt ikke mindst hvidløg, der bidrager med en høj grad af _umami_. Lad saucen simre, mens dejen hæver, og du har en lækker tomatsauce.
 
-<a href="http://chew.dk/wp-content/uploads/DSC_0079.jpg"><img src="http://chew.dk/wp-content/uploads/DSC_0079-1024x680.jpg" /></a>
+<a href="/assets/img/posts/DSC_0079.jpg"><img src="/assets/img/posts/DSC_0079-1024x680.jpg" /></a>
 
 Herfra er det kun fantasien, der sætter grænser. Frisk mozzarella er et must, og de billigste (men helt udmærkede!) varianter koster sjældent mere end reven ost.
   
 Vores lokale føtex har jævnligt tilbud på lækker spansk serranoskinke og chorizo af mærket 'Campofrio' til 39 kroner for 2 x 2 pakker. Med én pakke per pizza udgør toppings dermed cirka en tier af den samlede pris.
 
-<a href="http://chew.dk/wp-content/uploads/DSC_0085.jpg"><img src="http://chew.dk/wp-content/uploads/DSC_0085-1024x680.jpg" /></a>
+<a href="/assets/img/posts/DSC_0085.jpg"><img src="/assets/img/posts/DSC_0085-1024x680.jpg" /></a>
 
 Rul dejen tyndt ud, og saml løs! Først tomatsauce, så mozzarella og til sidst kød (og/eller andre toppings).
 
-<a href="http://chew.dk/wp-content/uploads/DSC_0087.jpg"><img src="http://chew.dk/wp-content/uploads/DSC_0087-1024x680.jpg" /></a>
+<a href="/assets/img/posts/DSC_0087.jpg"><img src="/assets/img/posts/DSC_0087-1024x680.jpg" /></a>
 
-<a href="http://chew.dk/wp-content/uploads/DSC_0093.jpg"><img src="http://chew.dk/wp-content/uploads/DSC_0093-1024x680.jpg" /></a>
+<a href="/assets/img/posts/DSC_0093.jpg"><img src="/assets/img/posts/DSC_0093-1024x680.jpg" /></a>
 
 Bag pizzaen i en glohed ovn — gerne på en pizzasten — i 5–8 minutter.
 
-<a href="http://chew.dk/wp-content/uploads/DSC_0097.jpg"><img src="http://chew.dk/wp-content/uploads/DSC_0097-1024x680.jpg" /></a>
+<a href="/assets/img/posts/DSC_0097.jpg"><img src="/assets/img/posts/DSC_0097-1024x680.jpg" /></a>
 
 Pynt hernæst pizzaen med rucola, der giver et friskt modspil til osten og kødet, samt gerne lidt revet parmesan — og server, mens pizzaen stadig er varm.
 
-<a href="http://chew.dk/wp-content/uploads/DSC_0101.jpg"><img src="http://chew.dk/wp-content/uploads/DSC_0101-1024x680.jpg" /></a>
+<a href="/assets/img/posts/DSC_0101.jpg"><img src="/assets/img/posts/DSC_0101-1024x680.jpg" /></a>
 
 _Buon appetito!_ Den samlede pris for 4 pizzaer endte i vores tilfælde på 98,10 kr. — eller lige under 25 kr. per pizza.
 
-<a href="http://chew.dk/wp-content/uploads/DSC_0104.jpg"><img src="http://chew.dk/wp-content/uploads/DSC_0104-1024x680.jpg" /></a>
+<a href="/assets/img/posts/DSC_0104.jpg"><img src="/assets/img/posts/DSC_0104-1024x680.jpg" /></a>
 
 **Ingredienser** (til 4 pizzaer)
 

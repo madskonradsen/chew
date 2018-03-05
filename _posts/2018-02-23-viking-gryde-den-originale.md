@@ -42,4 +42,4 @@ Det lynstegte kød væltes i den varme sauce, hvor det 'hviler' i ca. 20 minutte
 
 Retten serveres med hjemmelavede pommes frites og/eller ris. Tilsæt halsen rigelige mængder af godt øl.
 
-<a href="http://chew.dk/wp-content/uploads/IMG-0398.jpg"><img src="http://chew.dk/wp-content/uploads/IMG-0398-e1519398331487-1010x1024.jpg" /></a>
+<a href="/assets/img/posts/IMG-0398.jpg"><img src="/assets/img/posts/IMG-0398-e1519398331487-1010x1024.jpg" /></a>

@@ -21,37 +21,37 @@ Den klassiske franske løgsuppe er en lækker men forbavsende enkel forret. Kara
 
 Ingredienslisten for denne opskrift kunne ikke være meget enklere, men lad dig ikke narre: Med lidt tålmodighed og kærlighed udvikler løgene en lækker kompleksitet, mens den ellers så skarpe smag bliver meget afdæmpet.
 
-<a href="http://chew.dk/wp-content/uploads/DSC_0243.jpg"><img src="http://chew.dk/wp-content/uploads/DSC_0243-1024x792.jpg" /></a>
+<a href="/assets/img/posts/DSC_0243.jpg"><img src="/assets/img/posts/DSC_0243-1024x792.jpg" /></a>
 
 Først halveres løgene og skæres i tynde skiver — brug selv dit yndlingstrick for at undgå 'løgtårer', da et helt kilo løg godt kan være lidt hårdt ved øjnene.
 
-<a href="http://chew.dk/wp-content/uploads/DSC_0252.jpg"><img src="http://chew.dk/wp-content/uploads/DSC_0252-1024x655.jpg" /></a>
+<a href="/assets/img/posts/DSC_0252.jpg"><img src="/assets/img/posts/DSC_0252-1024x655.jpg" /></a>
 
 Glem alt om “sund” olie og umættede fedtsyrer: Denne ret fortjener smør.
 
-<a href="http://chew.dk/wp-content/uploads/DSC_02571.jpg"><img src="http://chew.dk/wp-content/uploads/DSC_02571-1024x680.jpg" /></a>
+<a href="/assets/img/posts/DSC_02571.jpg"><img src="/assets/img/posts/DSC_02571-1024x680.jpg" /></a>
 
 Løgene steges i cirka en halv time med jævnlig omrøring. Tilsæt evt. lidt sukker for at fremme karameliseringen — det er dog ikke strengt nødvendigt, da løgene selv karameliserer med lidt tålmodighed.
 
-<a href="http://chew.dk/wp-content/uploads/DSC_0260.jpg"><img src="http://chew.dk/wp-content/uploads/DSC_0260-1024x680.jpg" /></a>
+<a href="/assets/img/posts/DSC_0260.jpg"><img src="/assets/img/posts/DSC_0260-1024x680.jpg" /></a>
 
-<a href="http://chew.dk/wp-content/uploads/DSC_0263.jpg"><img src="http://chew.dk/wp-content/uploads/DSC_0263-1024x680.jpg" /></a> 
+<a href="/assets/img/posts/DSC_0263.jpg"><img src="/assets/img/posts/DSC_0263-1024x680.jpg" /></a> 
 
-<a href="http://chew.dk/wp-content/uploads/DSC_0269.jpg"><img src="http://chew.dk/wp-content/uploads/DSC_0269-1024x680.jpg" /></a>
+<a href="/assets/img/posts/DSC_0269.jpg"><img src="/assets/img/posts/DSC_0269-1024x680.jpg" /></a>
 
 Når løgene har fået en flot, gyldenbrun farve, tilsættes hakket hvidløg og hvedemel, der skal give suppen en lækker, fyldig konsistens. Rør det hele godt sammen, før du tilsætter et glas hvidvin. (Sig det ikke til franskmænd, men retten kan sagtens laves uden fransk vin — jeg brugte italiensk.)
 
-<a href="http://chew.dk/wp-content/uploads/DSC_0275.jpg"><img src="http://chew.dk/wp-content/uploads/DSC_0275-1024x680.jpg" /></a>
+<a href="/assets/img/posts/DSC_0275.jpg"><img src="/assets/img/posts/DSC_0275-1024x680.jpg" /></a>
 
 Tilsæt fonden, læg låget på gryden og lad den passe sig selv i ca. 10 minutter. Fjern derefter låget og lad suppen simre i yderligere 10 minutter.
 
 Suppen hældes i ovnfaste skåle og garneres med brød og Gruyère-ost, gerne i gavmilde mængder. Gruyère kan være lidt svært at finde i danske supermarkeder, og er i øvrigt halvdyrt — jeg har ladet mig fortælle, at en god emmentaler er en udmærket erstatning.
 
-<a href="http://chew.dk/wp-content/uploads/DSC_0284.jpg"><img src="http://chew.dk/wp-content/uploads/DSC_0284-1024x680.jpg" /></a>
+<a href="/assets/img/posts/DSC_0284.jpg"><img src="/assets/img/posts/DSC_0284-1024x680.jpg" /></a>
 
 Skålene med suppe og brød sættes i ovnen ved 200 grader indtil osten er helt smeltet.
 
-<a href="http://chew.dk/wp-content/uploads/DSC_0292.jpg"><img src="http://chew.dk/wp-content/uploads/DSC_0292-1024x680.jpg" /></a>
+<a href="/assets/img/posts/DSC_0292.jpg"><img src="/assets/img/posts/DSC_0292-1024x680.jpg" /></a>
 
 Servér med lidt friskhakket persille. Bon appetit.
 

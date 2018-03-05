@@ -16,7 +16,7 @@ tags:
 ---
 Skildpadder er godt, italiensk is er godt, så hvorfor ikke kombinere de to ting til den ultimative is?<!--more-->
 
-<a href="http://chew.dk/wp-content/uploads/IMG_0132_2.jpg"><img src="http://chew.dk/wp-content/uploads/IMG_0132_2-1024x768.jpg" /></a>
+<a href="/assets/img/posts/IMG_0132_2.jpg"><img src="/assets/img/posts/IMG_0132_2-1024x768.jpg" /></a>
   
 **Ingredienser:**
 
@@ -32,4 +32,4 @@ Skildpadder er godt, italiensk is er godt, så hvorfor ikke kombinere de to ting
   
 Når blandingen er kold køres den på ismaskine. Tilsæt de hakkede skildpadder når isen begynder begynder at tykne.
 
-<a href="http://chew.dk/wp-content/uploads/IMG_0126_2.jpg"><img src="http://chew.dk/wp-content/uploads/IMG_0126_2-1024x768.jpg" /></a>
+<a href="/assets/img/posts/IMG_0126_2.jpg"><img src="/assets/img/posts/IMG_0126_2-1024x768.jpg" /></a>

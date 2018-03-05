@@ -16,7 +16,7 @@ tags:
 ---
 Nu da december nærmer sig med hastige skridt, er fantastiske juleting såsom gløgg næsten uundgåeligt! Man kan selvfølgelig altid vælge at smutte ned i den lokale biks og købe en liter færdigproduceret gløgg, men kvaliteten deraf er ofte tvivlsom. Og så er der selvfølgelig også gløggessens, hvilket faktisk kan være ganske acceptabelt, hvis man ikke vælger det billigste! Man kan også gå hele vejen, og selv lave det fra bunden, da det ikke koster alverden.<!--more-->
 
-<a href="http://chew.dk/wp-content/uploads/glogg2.jpg"><img src="http://chew.dk/wp-content/uploads/glogg2-1024x680.jpg" /></a>
+<a href="/assets/img/posts/glogg2.jpg"><img src="/assets/img/posts/glogg2-1024x680.jpg" /></a>
 
 **Ingredienser:**
 
@@ -47,4 +47,4 @@ Opskriften er frit efter <a href="http://politiken.dk/mad/opskrifter/ECE844513/h
 
 Bonus info: På Engelsk hedder gløgg 'Mulled wine'.
 
-<a href="http://chew.dk/wp-content/uploads/glogg3.jpg"><img src="http://chew.dk/wp-content/uploads/glogg3-1024x680.jpg" /></a>
+<a href="/assets/img/posts/glogg3.jpg"><img src="/assets/img/posts/glogg3-1024x680.jpg" /></a>

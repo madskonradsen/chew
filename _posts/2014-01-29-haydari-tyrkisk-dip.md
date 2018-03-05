@@ -36,6 +36,6 @@ Haydari er en dip af tyrkisk oprindelse. Følgende opskrift er dog en afart dera
 
 Dippen har godt af at stå på køl et par timer, inden servering, så smagen bedre kan sætte sig, og samtidig tyknes dippen en smule.
 
-<a href="http://chew.dk/wp-content/uploads/haydari-2.jpg"><img src="http://chew.dk/wp-content/uploads/haydari-2-1024x739.jpg" /></a>
+<a href="/assets/img/posts/haydari-2.jpg"><img src="/assets/img/posts/haydari-2-1024x739.jpg" /></a>
 
 Opskriften er frit efter [Arla's opskrift](http://www.arla.dk/opskrifter/Haydari---tyrkisk-inspireret-dip/)

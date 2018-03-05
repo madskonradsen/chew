@@ -42,4 +42,4 @@ Hvis man ønsker en mere sund udgave kan man udskifte bacon med parmaskinke.
 
 Som bonus kan det nævnes at carbonara betyder "trækulsbrænder"(ja det gi'r ikke den vilde mening).
 
-<a href="http://chew.dk/wp-content/uploads/ala-carbonara2.jpg"><img src="http://chew.dk/wp-content/uploads/ala-carbonara2-1024x691.jpg" /></a>
+<a href="/assets/img/posts/ala-carbonara2.jpg"><img src="/assets/img/posts/ala-carbonara2-1024x691.jpg" /></a>

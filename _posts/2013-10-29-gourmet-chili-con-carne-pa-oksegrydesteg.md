@@ -22,37 +22,37 @@ Chili con carne er en omstridt ret, der kan laves på et utal af måder, som i n
 
 For enhver chili con carne gælder det, at _god tid_ giver et bedre resultat — men når en oksesteg skal braiseres, er tiden et decideret ufravigeligt krav, da kødet fra starten er alt andet end mørt. Samtidig betyder den lange braisering, at kødet rigtig kan nå at optage smagsnuancer fra krydderierne i retten. Jeg benyttede (ud over salt og peber) en blanding af kanel og spidskommen — to uundværlige krydderier i en god chili con carne — samt oregano og paprika, der blev fordelt og gnubbet godt ind i kødet før den indledende bruning.
 
-<a href="http://chew.dk/wp-content/uploads/DSC_0147-2.jpg"><img src="http://chew.dk/wp-content/uploads/DSC_0147-2-1024x680.jpg" /></a>
+<a href="/assets/img/posts/DSC_0147-2.jpg"><img src="/assets/img/posts/DSC_0147-2-1024x680.jpg" /></a>
 
 _Chili_ bliver nemt synonymt med de praktiske 'chili-mix', som findes hos ethvert supermarked, men her er også mulighed for stor variation. En af mine favoritter er habanero-chilien, der på [Scoville-skalaen](http://en.wikipedia.org/wiki/Scoville_scale) regnes som værende mellem 25 og 100 gange stærkere end fx jalapeños. Det kan virke afskrækkende, men når en ret som her får lov at koge ind i timevis, er styrken i sidste ende ikke voldsomt afgørende. Det er derimod chiliens smag, og på dette punkt udmærker habaneroen sig ved en frugtig, nærmest citrusagtig friskhed, der i særdeleshed kommer til at præge retten senere.
 
-<a href="http://chew.dk/wp-content/uploads/DSC_0189.jpg"><img src="http://chew.dk/wp-content/uploads/DSC_0189-1024x680.jpg" /></a>
+<a href="/assets/img/posts/DSC_0189.jpg"><img src="/assets/img/posts/DSC_0189-1024x680.jpg" /></a>
 
-<a href="http://chew.dk/wp-content/uploads/DSC_0199.jpg"><img src="http://chew.dk/wp-content/uploads/DSC_0199-1024x650.jpg" /></a>
+<a href="/assets/img/posts/DSC_0199.jpg"><img src="/assets/img/posts/DSC_0199-1024x650.jpg" /></a>
 
 Efter grydestegen er blevet brunet i nogle få minutter, svitses løg og chili hurtigt i samme pande, før det hele overføres til en simrende blanding af bouillon og hakkede tomater — her skal stegen ligge og hygge sig de næste 4–5 timer.
 
-<a href="http://chew.dk/wp-content/uploads/DSC_0222.jpg"><img src="http://chew.dk/wp-content/uploads/DSC_0222-1024x680.jpg" /></a>
+<a href="/assets/img/posts/DSC_0222.jpg"><img src="/assets/img/posts/DSC_0222-1024x680.jpg" /></a>
 
-<a href="http://chew.dk/wp-content/uploads/DSC_0231.jpg"><img src="http://chew.dk/wp-content/uploads/DSC_0231-1024x680.jpg" /></a>
+<a href="/assets/img/posts/DSC_0231.jpg"><img src="/assets/img/posts/DSC_0231-1024x680.jpg" /></a>
 
 Undervejs i braiseringen kan man tilsætte en række forskellige ingredienser, der bidrager til smagen af kødet og retten som sådan. Eksempelvis kan et halvt glas rødvin (gem den gode Châteauneuf-du-Pape og brug i stedet en billig papvin) give retten ekstra dybde; lidt whisk(e)y kan give et røget præg; og især en smule stærk, friskbrygget kaffe kan anbefales, da det giver lidt tiltrængt bitterhed til retten.
 
-<a href="http://chew.dk/wp-content/uploads/DSC_0257.jpg"><img src="http://chew.dk/wp-content/uploads/DSC_0257-1024x680.jpg" /></a>
+<a href="/assets/img/posts/DSC_0257.jpg"><img src="/assets/img/posts/DSC_0257-1024x680.jpg" /></a>
 
 Se til retten løbende, og vend gerne stegen et par gange, for at sikre en jævn braisering — men lad den ellers være i fred, indtil mindst 4 timer er passeret. Her bliver det tydeligt, at tålmodigheden har båret frugt, idet det før så seje oksekød nu ganske nemt kan rives i småstykker med to gafler.
 
-<a href="http://chew.dk/wp-content/uploads/DSC_0277.jpg"><img src="http://chew.dk/wp-content/uploads/DSC_0277-1024x680.jpg" /></a>
+<a href="/assets/img/posts/DSC_0277.jpg"><img src="/assets/img/posts/DSC_0277-1024x680.jpg" /></a>
 
-<a href="http://chew.dk/wp-content/uploads/DSC_0288.jpg"><img src="http://chew.dk/wp-content/uploads/DSC_0288-1024x680.jpg" /></a>
+<a href="/assets/img/posts/DSC_0288.jpg"><img src="/assets/img/posts/DSC_0288-1024x680.jpg" /></a>
 
 Det ‘trevlede kød’ overføres tilbage til gryden, hvorefter andre ingredienser kan tilføjes efter eget ønske. I mine øjne er rød peber, kidneybønner og syltede jalapeños uundværlige, ligesom en smule rigtig mørk chokolade giver retten en lækker, bittersød afrunding.
 
-<a href="http://chew.dk/wp-content/uploads/DSC_0323.jpg"><img src="http://chew.dk/wp-content/uploads/DSC_0323-1024x680.jpg" /></a>
+<a href="/assets/img/posts/DSC_0323.jpg"><img src="/assets/img/posts/DSC_0323-1024x680.jpg" /></a>
 
 Til sidst lader jeg retten simre i 20–30 minutter, hvorefter den serveres — selvfølgelig med rigelig crème fraîche!
 
-<a href="http://chew.dk/wp-content/uploads/DSC_0362.jpg"><img src="http://chew.dk/wp-content/uploads/DSC_0362-1024x768.jpg" /></a>
+<a href="/assets/img/posts/DSC_0362.jpg"><img src="/assets/img/posts/DSC_0362-1024x768.jpg" /></a>
 
 **Ingredienser** (ca. 4 personer)
 
