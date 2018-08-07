@@ -14,7 +14,7 @@
 # You can create any custom variable you would like, and they will be accessible
 # in the templates via {{ site.myvariable }}.
 
-url: http://chew.dk
+url: https://chew.dk
 name: Chew
 description: Mad, mad og atter mad!
 
