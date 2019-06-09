@@ -25,7 +25,7 @@ Der findes et utal af forskellige opskrifter på spaghetti carbonara. Nogen bedr
   * en halv courgette/squash/zucchini i tynde stave
   * 30-50g fintrevet parmasanost
   * 3 æggeblommer(pasteuriserede om man vil)
-  * 1/2 dl mælk
+  * 1-2 spsk. mælk
   * salt
   * peber
 
