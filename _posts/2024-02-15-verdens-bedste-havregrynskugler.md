@@ -29,5 +29,3 @@ Det her er de bedste havregrynskugler. Hvis du er i tvivl om jeg har ret, så pr
 Man kan eventuelt også tilsætte en smule stærk rom(f.eks. Stroh rom) hvis man vil.
 
 Ingredienserne blandes godt sammen (der må ikke være klumper af smør), trilles til små kugler og vendes i kokosmel. Opbevar dem derefter på køl i lufttæt beholder.
-
-<a href="/assets/img/posts/havregrynskugler2-1024x1136.jpg"><img src="/assets/img/posts/havregrynskugler2-1024x1136.jpg" /></a>
