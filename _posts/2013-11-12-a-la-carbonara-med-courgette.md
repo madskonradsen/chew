@@ -23,9 +23,9 @@ Der findes et utal af forskellige opskrifter på spaghetti carbonara. Nogen bedr
   * 250g grovpasta
   * 1 pakke bacon
   * en halv courgette/squash/zucchini i tynde stave
-  * 30-50g fintrevet parmasanost
+  * 30-50g fintrevet parmesanost
   * 3 æggeblommer(pasteuriserede om man vil)
-  * 1-2 spsk. mælk
+  * 1-2 spsk. pastavand
   * salt
   * peber
 
@@ -34,7 +34,7 @@ Der findes et utal af forskellige opskrifter på spaghetti carbonara. Nogen bedr
   * Sæt en gryde over med grovpastaen.
   * Steg bacon, og klip/skær/hak det derefter i små stykker.
   * Sauter derefter courgette stavene i en lille smule olie til de får farve.
-  * Bland en skål med æggeblommer, parmasan, mælk, salt og peber og rør godt rundt.
+  * Bland en skål med æggeblommer, parmesan, pastavand, salt og peber og rør godt rundt.
   * Når pastaen er kogt, hældes vandet fra, og bacon, courgette og ægge blandingen blandes i.
   * Server med friskkværnet peber på toppen!
 
